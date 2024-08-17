@@ -3,4 +3,4 @@
 
 邮箱/Email：starhikaristd@proton.me
 Telegram：@starhikariproducts
-官网/Offical Website：starhikaristd.github.io
+官网/Offical Website：starhikari-studios.github.io
